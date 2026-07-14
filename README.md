@@ -1,5 +1,5 @@
 # 💫 About Me:
-i'm currently making games using unreal engine<br>i'm pursuing computer science engineering degree<br><br>i'm looking for collaboration to makes video games
+i'm currently making games using unreal engine<br>i'm pursuing computer science engineering degree<br>i'm looking for collaboration to makes video games
 
 
 ## 🌐 Socials:
